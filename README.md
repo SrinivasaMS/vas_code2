@@ -2,3 +2,6 @@
 
 
 ging is the smartest character in anime kol
+
+
+divisions of life
