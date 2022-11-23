@@ -1,4 +1,4 @@
 # vas is doing another demo
 
 
-ging is the smartest character in anime
+ging is the smartest character in anime kol
